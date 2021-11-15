@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @NickyIsLost
+- 👀 I’m interested in programming, computers, and friends!
+- 🌱 I’m currently learning blockchain development and other things!
+- 💞️ I’m looking to collaborate on different things!
+- 📫 How to reach me : https://linktr.ee/nickyislost
